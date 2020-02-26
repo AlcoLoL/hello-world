@@ -1,2 +1,5 @@
 # hello-world
-First repository 
+
+Bip-bop-bip-bip!
+
+PEECHA CHAKKA NO WOOKIE BOONOWA TWEEPI.
